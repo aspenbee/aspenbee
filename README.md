@@ -6,6 +6,6 @@ Some of my interests are; Hunter x Hunter, AOT, Persona 4, Black Butler and Horr
 
 I can't promise that I'll respond all the time, but you may boop/kiss/crown or cuddle my pony!
 
-Ships that may interact (My ponies capitalized); YumiHISU, PIKUhan, leoPIKA, CAITvi, galoLIO, YUKIchie, CATRAdora. If your ship isn't listed, please ask before trying to do any ship activities.
+Ships that may interact (My ponies capitalized); YumiHISU, leoPIKA, CAITvi, galoLIO, YUKIchie, CATRAdora. If your ship isn't listed, please ask before trying to do any ship activities.
 
 SAO, DSMP & Proship DNI!
